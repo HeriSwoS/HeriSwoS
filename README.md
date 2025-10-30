@@ -10,6 +10,7 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with recruitment
 - 💬 Ask me about fame development
 - 📫 How to reach me: calaboucosdosdragoes@gmail.com
+- 🌐 Connect with me on LinkedIn: www.linkedin.com/in/herivelto-francato
 - 😄 Pronouns: he/his
 - ⚡ Fun fact: I enjoy running RPG sessions and playing TCGs, so I decided to create a game that combines both.
 
