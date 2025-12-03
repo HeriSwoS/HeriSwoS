@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 🌐 Connect with me on LinkedIn: www.linkedin.com/in/herivelto-francato
 - 😄 Pronouns: he/his
 - ⚡ Fun fact: I enjoy running RPG sessions and playing TCGs, so I decided to create a game that combines both.
-
+- 
